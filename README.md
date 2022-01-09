@@ -1,2 +1,2 @@
 # super-eureka
-live in a digital world, investment based game
+Metaverse, investment based game
